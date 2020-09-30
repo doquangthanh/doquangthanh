@@ -5,7 +5,6 @@
 
 ## I'm a Thanh, Developer!
 
-- 🔭 I’m currently working on a [https://aitech.asia/] [website]!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - ⚡ Fun fact: I love to draw and play guitar / drums
